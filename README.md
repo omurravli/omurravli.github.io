@@ -1,1 +1,0 @@
-# omurravli.github.io
